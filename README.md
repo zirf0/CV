@@ -1,3 +1,3 @@
 # resume
 
-My CV and skills in MS Word format
+My CV in pdf (Feb 2020) 
